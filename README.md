@@ -11,7 +11,7 @@ Created in 2020/11/05
 - random
 
 
-![program pic](https://github.com/JUSTSAIF/Mr28-Tellonym-Checker/blob/main/pics/Cover.jpg?raw=true)
+![program pic](https://github.com/fzrael/SnapChat-Download/blob/main/img/img.jpeg?raw=true)
 
 
 
