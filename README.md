@@ -19,4 +19,4 @@ Created in 2020/11/05
 ## Contact:
 
 My Instagarm : [@81111i](https://www.instagram.com/81111i) Add Me :)🖤   
-My Snapchat : [@xd0sry](https://snapchat/add/xd0sry) Add Me :)🖤
+My Snapchat : [@xd0sry](https://snapchat.com/add/xd0sry) Add Me :)🖤
