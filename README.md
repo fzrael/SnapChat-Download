@@ -15,6 +15,9 @@ Created in 2020/11/05
 
 
 
+ ## Download and Clone
+ > Download: Click [Here](https://github.com/fzrael/SnapChat-Download/archive/master.zip) (SnapChat-Download.zip)
+
 
 ## Contact:
 
